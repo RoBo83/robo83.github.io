@@ -1,1 +1,2 @@
 # Erin Brockovich
+Erin Brockovich-Ellis ist eine US-amerikanische Rechtsanwaltsgehilfin. Sie spielte als Mitarbeiterin der Anwaltskanzlei Masry & Vititoe eine wichtige Rolle in einem Gerichtsverfahren gegen das Unternehmen Pacific Gas and Electric (PG&E), um die Trinkwasserverseuchung des kalifornischen Orts Hinkley zu stoppen. Das Verfahren wurde 1996 mit der Zahlung der Rekordsumme von 333 Millionen US-Dollar beigelegt.
