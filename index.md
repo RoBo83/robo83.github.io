@@ -8,3 +8,5 @@ Erin Brockovich-Ellis ist eine US-amerikanische Rechtsanwaltsgehilfin. Sie spiel
 ## Zitat
 > Well, it just so happens, I think I look nice.
 > As long as I have one ass instead of two, I'll wear what I like...
+
+<img src="http://www.filmstarts.de/kritiken/23980/bilder/?cmediafile=18855446"/>
